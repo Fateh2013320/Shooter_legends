@@ -1,0 +1,22 @@
+## Shotguns
+
+- S1897  
+- S686  
+- S12K  
+- DBS  
+- M1014  
+- M870  
+- Origin-12  
+- KSG  
+- SPAS-12  
+- Remington 870  
+- M590  
+- M4 Super 90  
+- Benelli Nova  
+- R90  
+- Striker  
+- AA-12  
+- Model 1887  
+- Winchester 1200  
+- M26 MASS  
+- Ithaca 37
